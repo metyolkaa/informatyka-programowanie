@@ -1,1 +1,2 @@
 # informatyka-programowanie
+Anastasiia Metolkina
