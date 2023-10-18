@@ -1,2 +1,2 @@
 # informatyka-programowanie
-Anastasiia Metolkina
+Anastasiia Metolkina mam zly dzien ha ha ha
